@@ -1,4 +1,4 @@
-Aqui está a versão do README com alguns emojis para deixar o texto mais visual e envolvente:
+
 
 ---
 
